@@ -1,3 +1,3 @@
-Semester 2 Schedule
+Semester 4 Schedule
 
 timetables · semester calendars · assessment schedules
